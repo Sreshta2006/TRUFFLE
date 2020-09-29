@@ -1,0 +1,2 @@
+#ChocolateTRUFFLE
+    The classical recipe of the Homemade Chocolate Truffle includes a ganache which is a mixture of bittersweet chocolate and heavy cream. The classical recipe is experimented with varied ingredients to obtain different flavors.
